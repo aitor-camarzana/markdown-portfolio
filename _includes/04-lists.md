@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Avanzando
+2. con el 
+3. tutorial 
